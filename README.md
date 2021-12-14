@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning about web3, NFTs (clean ones!) and AI
 - 💞️ I’m looking to collaborate on as much as possible
 - 📫 How to reach me alexa@atomicno8.com
-- 🤷 WHat else? I run a small studio called Atomic N°8 based in Brooklyn
+- 🤷 What else? I run a small studio called Atomic N°8 based in Brooklyn

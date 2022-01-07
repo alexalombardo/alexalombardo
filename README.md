@@ -2,5 +2,5 @@
 - 👀 I’m interested in nocode and lowcode applications in web3
 - 🌱 I’m currently learning about web3, NFTs (clean ones!) and AI
 - 💞️ I’m looking to collaborate on as much as possible
-- 📫 How to reach me alexa@atomicno8.com
+- 📫 How to reach me alexa@alexalombardo.xyz
 - 🤷 What else? I run a small studio called Atomic N°8 based in Brooklyn
